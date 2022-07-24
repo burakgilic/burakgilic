@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @burakgilic
+- bilgisayar mühendisliği 3. sınıf öğrenci si yim 
+- c c++ c# ve java ile ilgile ni yo rum
+- iletişim burakxff@gmail.com
